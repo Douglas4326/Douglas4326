@@ -10,3 +10,4 @@ Meu nome é Douglas Saturnino
 
 0000110445189xSP@al.educacao.sp.gov.br
 
+!{}[]![image](https://github.com/user-attachments/assets/fae7d19d-c752-443c-ad17-997f2c9970b1)
